@@ -1,3 +1,3 @@
-# Digital-Marketing-SEO
+# Digital-Marketing
 Digital Marketing
 
